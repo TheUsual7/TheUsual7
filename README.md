@@ -1,2 +1,5 @@
 # TheUsual7
-About us...
+
+A group of lads doing what we do best... drinking :beers: gaming :video_game: and creating :keyboard:.
+
+Experimental indie developers 
